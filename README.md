@@ -8,4 +8,4 @@ Youtube: https://www.youtube.com/playlist?list=PLBh1qjPC4mUBhJLs_uVoDTUDRJB_5xwA
 
 Web: https://www.kodmanyagha.com/
 
-E-mail: snakecase@yahoo.com
+E-mail: kodmanyagha@gmail.com
